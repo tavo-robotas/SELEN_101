@@ -10,3 +10,4 @@
 - 2023/06/05 :https://youtu.be/D6m4e4dfTMc
 - 2023/06/12 :https://youtu.be/fGSlhZch3xw
 - 2023/06/19 :https://youtu.be/1Pxc-Yijp_g
+- 2023/06/26 :https://youtu.be/T-w6W2DLxxo
